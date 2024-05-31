@@ -1,0 +1,1 @@
+[![image](https://github.com/Pritanshu69/Simple-e-mail-sender-/assets/116452282/e86a934d-0c01-4547-a62c-da84e0842f29)](https://www.google.com/url?sa=i&url=https%3A%2F%2Femail.uplers.com%2Fblog%2Fhow-to-add-animated-gifs-to-email-signatures%2F&psig=AOvVaw0NPN1aw7c_NypNpEWI6smM&ust=1717256454343000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCPCtxfucuIYDFQAAAAAdAAAAABAE)
